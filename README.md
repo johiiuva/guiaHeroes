@@ -1,5 +1,5 @@
 # TRABAJO GRUPAL HEROES
-NATALIA
+NATALIA : 48 años, Remedios de Escalada, Lanus
 JAIRO : 33 años, William Morris, Hurlingham
 LAUTARO
 JOHANA: - EDAD: 29 - CUIDAD: TRENQUE LAUQUEN 
